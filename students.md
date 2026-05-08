@@ -1,3 +1,3 @@
-### Your Name
+### Salsabeel Alshayeb
 
-### Your Major
+### Computer Engineering
